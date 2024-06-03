@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SharkEdge3-60LF
+- 👋 Hi, I’m @SharkEdge3-60LF, But you can call me Self
 - ![_](https://media1.tenor.com/m/rtp1pldw6bcAAAAC/touhou-touhou-fumo.gif)
 - 
 - 👀 I’m interested in Make my own game based on "Beyblade X"
